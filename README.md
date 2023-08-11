@@ -1,2 +1,0 @@
-# mobILE
-NOSSO SITE PARA CELL
